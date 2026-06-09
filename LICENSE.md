@@ -1,4 +1,4 @@
-# 
+# VIP cross-margin trading bot ferramentas para Mac OS | Automático cross-margin trading bot ferramentas para PC Windows. Com arbitragem estatística e painéis personalizados — otimizado para máximo desempenho em cada plataforma.
 
 
 
